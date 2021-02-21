@@ -1,1 +1,1 @@
-# MoonPool
+We all know that feeling. You check the rate of any cryptocurrency coin and missed out on the rise of it. Within 2 hours the coin went up by a 100%, we call this process ‘mooning. MoonPool aims to build an community thats starts the mooning process of any cryptocurrency coin. Buy a spot in the weekly or monthly pool using the MOPO token and start the mooning process of the announced coin together with the MoonPool community.
